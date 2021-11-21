@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning a lot of everything concerning to code and web development.
 - 🌱 I’m currently learning the big trio; HTML, CSS & JS, currently in CSS and practicing HTML a lot for me to be able to dominate it as well as I can do!
 - 💞️ I’m looking to collaborate on simple websites, blogs or little projects just for learning intentions!
-- 📫 If you wanna be in touch with me or else making a new friends to study you can write by e-mail or via whatsapp too: +5592985529287
+- 📫 If you wanna be in touch with me or else making a new friends to study you can write by e-mail nyh1l.3691@gmail.com or via whatsapp too: +5592985529287
